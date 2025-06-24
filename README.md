@@ -1,7 +1,7 @@
 <h2>神仙代售官网，正规游戏账号交易平台|网页版入口</h2>
 <p>神仙代售成立于多年以前，专注于提供专业的游戏账号交易服务。平台致力于打造一个安全可靠的交易环境，通过严格的审核机制和完善的售后服务体系，保障用户的交易安全。平台支持多种支付方式，并提供24小时客服在线服务，帮助用户解决交易中的问题。此外，平台还注重用户隐私保护，对卖家身份证等敏感信息进行保密存储。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/4331.html" target="_blank"><strong>神仙代售最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
